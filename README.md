@@ -1,5 +1,5 @@
 # 💫 About Me:
-Galgotia
+Passionate coder, dedicated learner, and aspiring tech innovator. Turning lines of code into meaningful solutions one keystroke at a time. Embracing challenges and constantly expanding my coding horizons.
 
 
 ## 🌐 Socials:
